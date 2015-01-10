@@ -1,7 +1,6 @@
 ![Alt text](http://www.juntostudio.com/logo-square-75.png)
 
-La verdad esto era una broma. Yo no.
-
+Yo también.
 
 ---
 
