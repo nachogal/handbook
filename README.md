@@ -1,6 +1,8 @@
 ![Alt text](http://www.juntostudio.com/logo-square-75.png)
 
-Estoy buscando conflictos!! :D
+La verdad esto era una broma. Yo no.
+
+
 ---
 
 ### Index:
